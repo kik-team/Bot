@@ -1,0 +1,2 @@
+# Bot
+GO FUCK OFF DUMFUCK
